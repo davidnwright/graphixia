@@ -10,7 +10,7 @@ Freaking out over Dr. Manhattan's self-twosome--the product of his "universal" p
 
 Speaking of junk (and this is by far my favourite part of writing on this subject), how exactly is the human genitalia of a superhero affected by the substance, situation, context, producing the superpower? Save for fanzines and dark webs, these questions are not answered by mainstream comics. Instead, we get the usual line about being a good family man:
 
-graphixia 6
+[Spiderman as Good Husband](http://johnbyrnedraws.tumblr.com/post/127568916456/amazing-spider-man-1-page-38-by-john-byrne)
 
 Of course, being a "full-time husband to Mary Jane" means a lot of things, including boinking. Despite apparently leaving Spiderman the superhero behind, one assumes that the superpowers remain. This great write-up on [spider sex](http://animals.howstuffworks.com/arachnids/spider8.htm) gives us this fascinating tidbit: "spiders don't mate by coupling these organs. Instead, the male deposits some sperm onto a small web and picks it up on the end of his pedipalps. When the female is in position, the male deposits the sperm in the female's genital opening." Alright then. So, how much of the spider's characteristics transferred into Peter Parker and what kind of kinky play is Mary Jane into. Then there's this: a spider's "reproductive organs are at the rear of the abdomen." So where exactly is Peter Parker's dick? It puts a whole new spin on his costume would actually have to look doesn't it. 
 
